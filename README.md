@@ -1,12 +1,10 @@
 <div align="center">
-<img width="250" src="https://files.catbox.moe/o1i9hg.jpg">
-<p>DURGE <img src="https://64.media.tumblr.com/db4a5a80cfdf620e1e79705337debe77/6c47f25f2a7f736b-2d/s75x75_c1/dcc0914fe3498e26c552c9c6545601459da000f3.gifv" width="10"> M25↑
-<br><sup>tortured disabled draconic drow.</sup>
-<br><br><sup>i have a dissociative disorder,
+<img width="250" src="https://64.media.tumblr.com/28369c5ded75a02d8b28987305723e7b/035e4eb617dab16e-51/s2048x3072/1c02ab74ec8771275af53447eaa52919ea409c43.jpg">
+<p><img src="https://64.media.tumblr.com/4f648094f2e4748748309369be64fc7c/aa5c7eff742722b9-b1/s75x75_c1/5fc65f99ccd464386e3c61f52f9a1822c540c0ed.gifv" width="15"> 28 they. socially inept.
+
+<br><sup>i have a dissociative disorder,
+<br>have been aware for a decade, plus therapy.
 <br>i am not going to offer any more
 <br>information beyond that.</sup>
-<sup><br><br>do not talk to me unless we are already friends.
-<br>i am very irritable due to being in constant pain,
-<br>i take care to not impact others with it.</sup>
 </div>
 
