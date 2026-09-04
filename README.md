@@ -4,6 +4,7 @@
 
 <br><sup>i have a dissociative disorder,
 <br>have been aware for a decade, plus therapy.
+<br>this impacts my behavior and presentation.
 <br>i am not going to offer any more
 <br>information beyond that.</sup>
 </div>
